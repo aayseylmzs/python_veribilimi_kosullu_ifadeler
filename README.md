@@ -1,0 +1,1 @@
+# python_veribilimi_kosullu_ifadeler
